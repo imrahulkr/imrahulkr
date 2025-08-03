@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/imrahulkr](https://github.com/imrahulkr)
 
-- 📫 How to reach me: **rahul31774**
+- 📫 How to reach me: **rahul31774@gmail.com**
 
 - 📄 Know about my experiences: [https://github.com/imrahulkr](https://github.com/imrahulkr)
 
